@@ -1,1 +1,1 @@
-# Getup
+# Getup and do it
